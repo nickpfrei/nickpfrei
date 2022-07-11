@@ -1,1 +1,1 @@
-- 📫 Email: contact (at) nickfrei (dot) com. 
+- 📫 Email: github (at) nickfrei (dot) com. 
